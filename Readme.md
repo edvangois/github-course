@@ -7,3 +7,5 @@ Saiba mais em [willianjusten.com.br](http://willianjusten.com.br)
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =)
 
 email: edvangoiis@gmail.com
+
+Meu LinkedIn : https://www.linkedin.com/in/edvangois/
