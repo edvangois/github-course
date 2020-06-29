@@ -8,4 +8,4 @@ Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =)
 
 email: edvangoiis@gmail.com
 
-Meu LinkedIn : https://www.linkedin.com/in/edvangois/
+Meu LinkedIn : [LinkedIn Ed:](https://www.linkedin.com/in/edvangois/)
